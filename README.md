@@ -1,29 +1,30 @@
 # NELLY WAMBUI
 
-SoMe CaLL Me BoBo :grinning:
+* SoMe CaLL Me BoBo :grinning:
 
-MoSt CaLL Me NeLLY :smile:
+* MoSt CaLL Me NeLLY :smile:
 
-I CaLL MySeLF **A LOGISTICIAN** :nerd_face:
+* I CaLL MySeLF **A LOGISTICIAN** :nerd_face:
 
-A Logistician is a personality type represented by:
+* A Logistician is a personality type represented by:
 
-I - Introvert
+```
+      I - Introvert
 
-S - Observant
+      S - Observant
 
-T - Thinking
+      T - Thinking
 
-J - Judging
+      J - Judging
+```
 
-
-Give Yourself a new name by taking this test
+* Give Yourself a new name by taking this test:
 
 [PERSONALITY TRAIT](https://www.16personalities.com/free-personality-test)
 
 
-```
+***
 MORE ON PERSONALITY TYPES COMING SOON!!!!!!!
-```
+***
 
 ![STAY TUNED](https://media.istockphoto.com/vectors/handwritten-lettering-of-stay-tuned-vector-illustration-vector-id1272779390?k=20&m=1272779390&s=612x612&w=0&h=NpQvFJ-IT2janP0ww_yU04QUz81oaplgMNz_yDj3Vvw=)
