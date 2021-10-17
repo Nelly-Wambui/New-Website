@@ -1,10 +1,10 @@
 # NELLY WAMBUI
 
-* SoMe CaLL Me BoBo :grinning:
+* SoMe CaLL Me BoBo 
 
-* MoSt CaLL Me NeLLY :smile:
+* MoSt CaLL Me NeLLY 
 
-* I CaLL MySeLF **A LOGISTICIAN** :nerd_face:
+* I CaLL MySeLF **A LOGISTICIAN** 
 
 * A Logistician is a personality type represented by:
 
